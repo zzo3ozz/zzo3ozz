@@ -5,7 +5,7 @@
 ## ✨wityoung✨
 - 💁‍♀️ This is **Seoyoung**. But some folks call me **Minnie**, too.
 - 👀 I'm interested in `Back-End Developer`.
-- 👉 [**More...**](https://wityoung-h.notion.site/5da77a565e434405b64ea17d103c0ed4?pvs=4) (linked with my Notion page)  
+- 👉 [**More...**](https://wityoung-h.notion.site/5da77a565e434405b64ea17d103c0ed4?pvs=4) (linked to my Notion page)  
 <br/>
  
 ## 🛠️ My Skills
